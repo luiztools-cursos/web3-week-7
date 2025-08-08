@@ -15,11 +15,13 @@ Live 02: https://youtube.com/live/mzElGTnrOT0?feature=share
 
 Live 03: https://youtube.com/live/JCnO2ugKKEY?feature=share
 
-Live 04: soon
+Live 04: https://youtube.com/live/ecR-hMvfyAY?feature=share
 
-Live 05: soon
+Live 05: https://youtube.com/live/17vdaw_K8Qc?feature=share
 
 ## More
+
+Know the complete course: https://www.luiztools.com.br/curso-web23
 
 Know my web3 book: https://www.luiztools.com.br/livro-web3
 
